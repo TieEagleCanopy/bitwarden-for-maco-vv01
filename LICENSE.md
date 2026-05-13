@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Bitwarden for macOS automation with ultimate Bitwarden for macOS Automation | cross-device-sync + password-generator. Featuring cross-device-sync and
 
 
 
